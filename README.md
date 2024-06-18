@@ -1,2 +1,0 @@
-# lannyducas.github.io
-# test
